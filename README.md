@@ -1,1 +1,1 @@
-# HELLO THIS IS YOUR DUUKA SPEAKING WIT NO YOU MEAN IM NOT  ALIVNG CREATURE
+# yourduuka app version 0.0.1 no themes included
